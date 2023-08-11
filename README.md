@@ -1,0 +1,2 @@
+# FwqxGetIp
+WARNİNG!!! FWQX CYBER GUN!!
